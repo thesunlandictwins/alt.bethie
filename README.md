@@ -21,6 +21,6 @@ anyone can interact! i enjoy talking to people :D <br>
 ***
 
 <p align="center">
-i'll add my ponies here soon ... please don't copy :'3 <br>
+i'll add my ponies here soon ... :'3 <br>
   art at top by y0gurtfae!
 </p>
